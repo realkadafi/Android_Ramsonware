@@ -101,7 +101,7 @@ Tested on devices ```Android 10```
 
 ### Support Us
 
-Contact on Whatsapp  [@Belemajnr] (https://wa.me/+2348146783668)<br>
+Contact on Whatsapp  [@Belemajnr](https://wa.me/+2348146783668)<br>
 
 TELEGRAM  [@Shady109](https://t.me/shady109)
 
